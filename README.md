@@ -1,5 +1,5 @@
-## JOUST
-[Joust](https://joustagency.com)  
+## WORK
+[JOUST](https://joustagency.com)  
 
 ## MAIL
 
@@ -7,5 +7,5 @@
 
 ## SOCIAL
 
-[Linkedin](https://www.linkedin.com/in/judahnagler)
+[Linkedin](https://www.linkedin.com/in/judahnagler)  
 [Twitter](https://twitter.com/_judahnagler)  
