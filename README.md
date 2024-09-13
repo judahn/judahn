@@ -1,11 +1,11 @@
-## 🍱 WORK
+## WORK
 [JOUST](https://joustagency.com)  
 
-## 📫 MAIL
+## MAIL
 
 [judah@joustagency.com](mailto:judah@joustagency.com)  
 
-## 🏕️ SOCIAL
+## SOCIAL
 
 [Linkedin](https://www.linkedin.com/in/judahnagler)  
 [Twitter](https://twitter.com/_judahnagler)  
