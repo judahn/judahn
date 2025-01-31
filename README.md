@@ -1,9 +1,9 @@
 ## WORK
-[JOUST](https://joustagency.com)  
+[JOUST](https://byjudah.com)  
 
 ## MAIL
 
-[judah@joustagency.com](mailto:judah@joustagency.com)  
+[hello@byjudah.com](mailto:hello@byjudah.com)  
 
 ## SOCIAL
 
