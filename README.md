@@ -1,5 +1,5 @@
 ## WORK
-[JOUST](https://byjudah.com)  
+[JUDAH NAGLER](https://byjudah.com)  
 
 ## MAIL
 
